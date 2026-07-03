@@ -1,4 +1,4 @@
-# 
+# Top QuickBooks extensions pour Mac OS | Nouveau QuickBooks extensions pour PC Windows. Avec vérification des erreurs et synchronisation dans le cloud — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
